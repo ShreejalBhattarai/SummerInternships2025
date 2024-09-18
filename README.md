@@ -10,3 +10,5 @@ https://jobsp1.lanl.gov/OA_HTML/OA.jsppage=/oracle/apps/irc/candidateSelfService
 **NVIDIA Summer Ignite Program**: https://nvidia.wd5.myworkdayjobs.com/en-US/NVIDIAExternalCareerSite/job/NVIDIA-2025-Ignite-Internships--Software-Engineering_JR1987620
 
 **Tesla Internships Summer 2025**: https://www.tesla.com/careers/search/job/apply/225236
+
+**Dell Career Fair Internship**: Check for the resources from the fair.
