@@ -12,3 +12,5 @@ https://jobsp1.lanl.gov/OA_HTML/OA.jsppage=/oracle/apps/irc/candidateSelfService
 **Tesla Internships Summer 2025**: https://www.tesla.com/careers/search/job/apply/225236
 
 **Dell Career Fair Internship**: Check for the resources from the fair.
+
+**Amazon Hardware Internship**
