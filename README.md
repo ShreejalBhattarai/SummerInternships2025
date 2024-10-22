@@ -14,3 +14,5 @@ https://jobsp1.lanl.gov/OA_HTML/OA.jsppage=/oracle/apps/irc/candidateSelfService
 **Dell Career Fair Internship**: Check for the resources from the fair.
 
 **Amazon Hardware Internship**
+
+**Winter 2025**: https://docs.google.com/forms/d/1heox0MNKi7U2VUwjYjesqNr4feblp1402KvGAIawxHk/viewform?edit_requested=true
