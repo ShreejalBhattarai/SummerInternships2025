@@ -19,4 +19,8 @@ https://jobsp1.lanl.gov/OA_HTML/OA.jsppage=/oracle/apps/irc/candidateSelfService
 
 https://santafe.edu/engage/learn/programs/undergraduate-complexity-research
 
+https://breakthroughtech.tfaforms.net/wfz1abQ/eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJ3b3JrZmxvd1Nlc3Npb25VdWlkIjoiNjljMWQxNzktZGVlMS00ODMxLWIwYWItNGIzNzRjZDgzNGVkIiwiZm9ybUlkIjoyMiwicmVzcG9uc2VJZCI6bnVsbCwidXNlX3NhdmVfcmVzdW1lIjp0cnVlfQ.en68ZHowWG4rph_sdbbs43j6-QJPtAm5LJPJX5_m-n8
 
+https://lnkd.in/dBYMGFtE
+
+https://www.linkedin.com/posts/danielleamaegbo_research-stem-internships-activity-7272603567901790208-dm91?utm_source=share&utm_medium=member_desktop
