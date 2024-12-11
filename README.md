@@ -16,3 +16,7 @@ https://jobsp1.lanl.gov/OA_HTML/OA.jsppage=/oracle/apps/irc/candidateSelfService
 **Amazon Hardware Internship**
 
 **Winter 2025**: https://docs.google.com/forms/d/1heox0MNKi7U2VUwjYjesqNr4feblp1402KvGAIawxHk/viewform?edit_requested=true
+
+https://santafe.edu/engage/learn/programs/undergraduate-complexity-research
+
+
