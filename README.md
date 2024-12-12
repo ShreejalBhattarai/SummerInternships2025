@@ -24,3 +24,5 @@ https://breakthroughtech.tfaforms.net/wfz1abQ/eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1Ni
 https://lnkd.in/dBYMGFtE
 
 https://www.linkedin.com/posts/danielleamaegbo_research-stem-internships-activity-7272603567901790208-dm91?utm_source=share&utm_medium=member_desktop
+
+https://program-connect.mit.edu/apply/frm?1953ea69-75b4-4840-807e-9ce642fd2754
